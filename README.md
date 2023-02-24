@@ -1,4 +1,7 @@
-### Hi everyone, I'm Soora [SooraMaru] 👋   [![](https://visitcount.itsvg.in/api?id=SooraMaru&icon=5&color=2)](https://visitcount.itsvg.in)
+<center>
+<img src="https://cdn.discordapp.com/attachments/1045120963601248286/1078485462332743781/AnchoredGiantAmericanmarten-size_restricted.gif" width="500" height="300" />
+</center>
+### Hi everyone, I'm Soora👋 
 
 <!-- [<img align="left" alt="SooraMaru | YouTube" width="22px" src="https://cdn.icon-icons.com/icons2/1211/PNG/512/1491579609-yumminkysocialmedia08_83079.png" />][youtube]
 [<img align="left" alt="SooraMaru | Twitter" width="22px" src="https://cdn.icon-icons.com/icons2/317/PNG/512/social-twitter-icon_34350.png" />][twitter]
